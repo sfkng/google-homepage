@@ -1,0 +1,1 @@
+Copy of a Google's start page
